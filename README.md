@@ -1,0 +1,2 @@
+# Dana 4830 Project
+ This information in the datasheet intends to distinguish purchasers' knowledge and practice in utilizing and diminishing plastic items. The variables of the datasheet mainly focus on the following areas.  a.    Demographic Information b.    Knowledge c.    Attitude and Social perception norms affecting plastic changing intention and behaviours e.    Perceived behaviour control over plastic behaviour intention and behavioural change f.    Plastic related behaviours  g.    Intention to change behaviours h.    Communication-related to plastics 
